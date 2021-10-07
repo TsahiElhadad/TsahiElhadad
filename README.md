@@ -1,6 +1,6 @@
 ## 👨🏻‍💻 About Me
 
-- BSc CS Student 2nd year
+- BSc CS Student 3nd year
 - Get in touch with me at [tsahi4332@gmail.com](tsahi4332@gmail.com)
   
   ## 🔢 Statistics
